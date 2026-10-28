@@ -1,0 +1,1 @@
+visuell profil: https://www.od.no/ods-visuelle-profil
